@@ -31,4 +31,4 @@ Creamy like custard; banana, guava, and apple notes.  About as sweet as a papaya
 ### Pineapple   
 Close your eyes and you’re in fucking Hawaii.  Hands down the third best fruit in Tanzania.  Consistently and perfectly sweet; an intense pineapple flavor, almost like bubble gum.  Never too fibrous, the chunks just melt into juice in your mouth.    
   
-1000 Shillings or 40 cents a pineapple.  If only Tanzania had freeways and refrigerated trucks, the could sell these in Europe at $7 a pop.  But no.  This is Tanzania, where the speed limit is 50 kph on a two lane highway, and there’s always traffic.   
+1000 Shillings or 40 cents a pineapple.  If only Tanzania had freeways and refrigerated trucks, they could sell these in Europe at $7 a pop.  But no.  This is Tanzania, where the speed limit is 50 kph on a two lane highway, and there’s always traffic.   
